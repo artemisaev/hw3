@@ -51,7 +51,7 @@ Porter Robinson|1||
 
 ---
 
-* **Наименее популярным жанром и исполнителями оказались соответственно Future Bass и Porter Robinson (1) с Illenium (3)**
+* **Наименее популярными жанром и исполнителями оказались соответственно Future Bass и Porter Robinson (1) с Illenium (3)**
 
 ![ПР](https://festivalsherpa-wpengine.netdna-ssl.com/wp-content/uploads/2017/01/tumblr_nmpjswfnZe1r4m11wo1_1280.jpg "грустный Портер")
 
